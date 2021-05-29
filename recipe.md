@@ -1,4 +1,4 @@
-  1. Whip egg yolks and sugar: In medium mixing bowl using an electric hand mixer whip together egg yolks and granulated sugar on high speed until pale and fluffy, about 2 minutes. 
+ 1. Whip egg yolks and sugar: In medium mixing bowl using an electric hand mixer whip together egg yolks and granulated sugar on high speed until pale and fluffy, about 2 minutes. 
      
   2. Heat 3/4 cup cream: Warm 3/4 cup of the heavy cream in a 2-quart saucepan on the stovetop over low heat    until hot. 
 
